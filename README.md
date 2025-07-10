@@ -18,4 +18,4 @@
 
 正因为我们坚持原创内容编排、技术性能优化与高频更新策略，让这个平台不仅深受观众欢迎，也在“日本AV免费”等高热关键词中持续获得搜索引擎的认可。我们相信，真正高质量的免费AV体验，不只是一键播放那么简单，而是全方位用户满意的结果。
 
-<span style="display:none;">[Canonical link]( https://github.com/ribenyi1021/659184 ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/riben54550/659184 ）</span>
